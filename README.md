@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mone3423
+- 👀 I am interested in learning coding and programming.
+- 🌱 I’m currently learning master of coding
+- 📫 How to reach me alcon.1327896@gmail.com
+- 🌱 I’m study Mechatronics Engineering
